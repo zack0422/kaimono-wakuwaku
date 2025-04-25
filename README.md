@@ -1,1 +1,0 @@
-# kaimono-wakuwaku
